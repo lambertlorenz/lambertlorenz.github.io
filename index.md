@@ -1,4 +1,4 @@
-Content will arrive soon <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
+Content will arrive soon <br/><br/>
 
 
 
